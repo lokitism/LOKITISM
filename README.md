@@ -15,3 +15,5 @@ $\small{\textsf{ }}$
 <p align="center"> I'm a Loki IRL, doubles do not interact unless we are already friends. I get uncomfortable around doubles or just when people say "I'm literally Loki" or they try to imitate him in a way. It irks me out and just seems really corny.
 <p align="center">$\color{#05FFE2}{\textsf{𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟}}$
 $\small{\textsf{ }}$
+<p align="center"> BELOW IS A DOCUMENT MADE FOR AWARENESS. DO NOT HARASS OR ATTACK ANYONE MENTIONED.
+<p align="center">https://docs.google.com/document/d/1HOP_97qouKVA-0-3ac1D1-7ClMjkNrYuhpAEEwh_kL4/edit?tab=t.0
