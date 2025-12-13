@@ -16,4 +16,4 @@ $\small{\textsf{ }}$
 <p align="center">$\color{#05FFE2}{\textsf{𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟}}$
 $\small{\textsf{ }}$
 <p align="center"> BELOW IS A DOCUMENT MADE FOR AWARENESS. DO NOT HARASS OR ATTACK ANYONE MENTIONED.
-<p align="center">https://docs.google.com/document/d/1HOP_97qouKVA-0-3ac1D1-7ClMjkNrYuhpAEEwh_kL4/edit?tab=t.0
+<p align="center">https://docs.google.com/document/d/1HOP_97qouKVA-0-3ac1D1-7ClMjkNrYuhpAEEwh_kL4/edit?usp=sharing
